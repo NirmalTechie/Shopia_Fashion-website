@@ -1,8 +1,5 @@
 
 
 
-
-
-
 Shopia_Fashion-website
 
