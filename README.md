@@ -1,4 +1,4 @@
 hhuyyhhhhhjjyygghhbv   bggc
  mirmmal
 enenhhe gg
-. yunnjjybn  iuhhhhggj hyyttuuyy
+. yunnjjybn  iuhhhhggj
